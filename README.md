@@ -1,0 +1,2 @@
+# premium-gem-facet-001-gem-faceting-dop-stick-craft
+Struggling to keep your dop sticks, angles, and gem faceting notes from turning into a chaotic mess? The Gem Faceting &amp; Dop Stick Craft Lab transforms your workflow into a precise, digital lab notebook.  This Notion template solves the disorganization of gem faceting by giving you a structured system to log every gem, link it to its dop stick, and
